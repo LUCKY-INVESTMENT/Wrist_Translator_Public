@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Last Updated: August 11, 2025**
+**Last Updated: September 8, 2025**
 
 This Privacy Policy aims to inform you, the user, about how **LUCKY INVESTMENT** ("we," "us," or "our") handles your information when you use our **Wrist Translator** software ("Software").
 
